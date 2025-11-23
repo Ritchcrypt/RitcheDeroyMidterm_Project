@@ -1,0 +1,2 @@
+# RitcheDeroyMidterm_Project
+Aloha!
